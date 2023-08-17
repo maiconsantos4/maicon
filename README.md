@@ -1,2 +1,5 @@
 # BEM VINDO AO MEU PERFIL 
-https://media.tenor.com/GOdFvGyhlpAAAAAd/happy-thursday-thursday-dance.gif
+MEU NOME É Maicon Rodrigo Dos Santos
+ESTUDO NO COLEGIO HUMBERTO DE ALENCAR CASTELO BRANCO
+![](https://media.tenor.com/yi2nLEan_pIAAAAM/troll-face-evil.gif)
+![](https://media.tenor.com/NLVvFB6Ac9gAAAAd/spider-man-pointing.gif)
